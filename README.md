@@ -1,0 +1,2 @@
+# berat
+Her sey. Yazabilirimisini
